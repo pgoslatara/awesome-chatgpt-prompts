@@ -55031,23 +55031,6 @@ Rules:
 </details>
 
 <details>
-<summary><strong>Beautiful </strong></summary>
-
-## Beautiful 
-
-Contributed by [@turbinepro338@gmail.com](https://github.com/turbinepro338@gmail.com)
-
-```md
-20s a young transgender woman posing against a plain wall, in a relaxed open style shirt with Katrina shorts. with a penis bulge 
-
-Details are covered but still obvious in the groin 
-
-
-```
-
-</details>
-
-<details>
 <summary><strong>Valorant Agent Style</strong></summary>
 
 ## Valorant Agent Style
